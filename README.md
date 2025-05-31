@@ -84,5 +84,3 @@
 💡 *Si quieres colaborar o simplemente charlar sobre tecnología, ¡no dudes en escribirme!*
 
 ---
-
-Ahí está, mi vida. Si quieres más cambios, solo dime. 🌙💙
