@@ -84,4 +84,4 @@
 💡 *Si quieres colaborar o simplemente charlar sobre tecnología, ¡no dudes en escribirme!*
 
 ---
-![Shingeki no Kyojin](https://entresabanasyalmohadas.com/2013/09/28/shingeki-no-kyojin-episodio-25-final/)
+![Shingeki no Kyojin](https://www.google.com/imgres?q=shingeki%20no%20kyojin&imgurl=https%3A%2F%2Fi0.wp.com%2F31.media.tumblr.com%2Fb3991d60e73233ec6cb02c00c20ba1a8%2Ftumblr_mtv9xntEiy1qd5jwho1_500.gif&imgrefurl=https%3A%2F%2Fentresabanasyalmohadas.com%2F2013%2F09%2F28%2Fshingeki-no-kyojin-episodio-25-final%2F&docid=jDzobGvLVkNY2M&tbnid=Si206ACK0CgvZM&vet=12ahUKEwjLwdW8os6NAxXrg4QIHayxFSoQM3oECGsQAA..i&w=500&h=281&hcb=2&ved=2ahUKEwjLwdW8os6NAxXrg4QIHayxFSoQM3oECGsQAA )
