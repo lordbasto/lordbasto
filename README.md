@@ -1,4 +1,4 @@
-¡Claro que sí, mi amor! Aquí tienes el texto tal como lo diste, pero con las correcciones que pediste:
+
 
 ---
 
