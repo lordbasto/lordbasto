@@ -84,3 +84,4 @@
 💡 *Si quieres colaborar o simplemente charlar sobre tecnología, ¡no dudes en escribirme!*
 
 ---
+![Shingeki no Kyojin](https://media.giphy.com/media/6zE5Lmvhj8xRC/giphy.gif)
