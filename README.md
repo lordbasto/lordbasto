@@ -73,7 +73,7 @@
 ## 📬 ¡Conectemos!
 
 <p align="center">
-  <a href="https://www.instagram.com/karen._.g16?igsh=MW54M3h6andoNmE4dw==">
+  <a href="https://www.instagram.com/brayannicolasp/">
     <img src="https://img.shields.io/badge/Instagram-%2312100E.svg?style=for-the-badge&logo=instagram&logoColor=white&color=black" />
   </a>
 </p>
