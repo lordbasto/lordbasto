@@ -1,4 +1,4 @@
-<div style="background-color:#f0f8ff; padding: 20px; border-radius: 12px">
+
 
 ### 👋 ¡Hola! Soy [brayan nicolas poloche castro](https://github.com/lordbasto)
 
@@ -81,4 +81,4 @@
 ✨ *Gracias por visitar mi perfil. Estoy emocionada por seguir aprendiendo y aportar al mundo de la tecnología.*  
 💡 *Si quieres colaborar o simplemente charlar sobre tecnología, ¡no dudes en escribirme!*
 
-</div> hacer esto pero con mi personalidad mis datos bro me entiendes
+
